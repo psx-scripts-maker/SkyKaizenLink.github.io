@@ -1,1 +1,0 @@
-# SkyKaizenLink.github.io
